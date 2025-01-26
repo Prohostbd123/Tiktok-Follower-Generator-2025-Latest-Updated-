@@ -29,7 +29,7 @@ Getting started is easy:
 
 3.Click “Generate” — the tool handles the rest while you focus on creating amazing content!
 
-vWhy Choose the Free Follower Generator for TikTok?</strong>
+<strong>Why Choose the Free Follower Generator for TikTok?</strong>
 
 💰 Completely Free: No payments or hidden costs.
 
